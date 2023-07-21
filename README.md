@@ -1,1 +1,0 @@
-# takepiyo.github.io
